@@ -1,7 +1,8 @@
 <h2>CliCli动漫官网入口 - 免费动漫在线看网页网站|打不开|下载</h2>
 <p>CliCli动漫是一个专注于二次元文化和动漫资源的平台，为动漫爱好者提供了一个全面、便捷的观看和交流空间。该网站以其丰富的动漫资源、高清画质、流畅的播放体验以及多样化的功能深受用户喜爱。无论是热门新番、经典老番还是各类剧场版，用户都能在这里找到自己心仪的动漫作品。此外，CliCli动漫还支持弹幕互动、智能推荐、排行榜等功能，进一步增强了用户的沉浸式体验。</p>
 <p><strong>一键访问：</strong><a href="https://www.rymdh.com/sites/3384.html" target="_blank"><strong>CliCli动漫最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259" target="_blank"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://www.rymdh.com/favorites/dongmanerciyuan" target="_blank"><strong>在线看动漫/漫画导航网站大全</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>功能特点：</strong></p>
 <p><strong>资源丰富</strong><br>CliCli动漫汇聚了国内外海量的动漫资源，包括国漫、日漫、美漫等多种类型，涵盖热门新番、经典老番以及剧场版等。这些资源每日更新，确保用户能够第一时间观看最新内容。</p>
